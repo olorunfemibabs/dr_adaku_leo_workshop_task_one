@@ -1,4 +1,4 @@
-# Vibe With Dr. Adaku
+# Aleo zkHouse Lagos: VIBES WITH DR ADAKU
 
 ### The First Task From The Workshop
 
